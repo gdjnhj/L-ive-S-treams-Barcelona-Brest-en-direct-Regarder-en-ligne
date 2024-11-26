@@ -1,4 +1,4 @@
-# [LIVE.STREAMS] Barcelona Brest en direct Regarder en ligne
+# [LIVE.STREAMS] Barcelona vs Brest en direct Regarder en ligne
 
 WATCH Barcelona vs Brest LIVE STREAMS UCL ON TV CHANNEL Hey fellow UCL 2024/25 viewers.
 
